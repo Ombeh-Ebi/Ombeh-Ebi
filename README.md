@@ -1,3 +1,3 @@
 # Ombeh Akpoebide George (@Ombeh-Ebi)
 
-I am currently a data analyst, a journer that has so far been enlightening and amazing, I am a lifelong learner and am interested in generation actionable insight from your data needs.  
+I am An entry level in data analytics who is passionate about data. I love to turn data into information and information into insights, and insights into business decisions
